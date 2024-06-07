@@ -1,4 +1,4 @@
-Tabii, işte profesyonel bir açıklama:
+
 
 ---
 
